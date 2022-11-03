@@ -1,4 +1,4 @@
-![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
+i am a orange, i can eat......WTF YOU SAID YOU WILL EAT ME? DO U WANT TO EAT A CAN TALK'S ORANGE???????
 
 <a href=#><img src="contributions.svg"></a>
 
