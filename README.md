@@ -4,5 +4,5 @@ i am a orange, i can eat......WTF YOU SAID YOU WILL EAT ME? DO U WANT TO EAT A C
 
 <p align="center"> 
   Visitor count<br>
-  <img src="https://profile-counter.glitch.me/daweedkob/count.svg" />
+  <div align='center'><img src='https://www.websitecounterfree.com/c.php?d=9&id=23647&s=40' border='0''>
 </p>
