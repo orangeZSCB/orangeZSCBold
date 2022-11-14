@@ -5,6 +5,6 @@ i am a orange, i can eat......WTF YOU SAID YOU WILL EAT ME? DO U WANT TO EAT A C
 
 <p align="center"> 
 <br>
-listen this song:joy:
+listen this songlist:joy:
   <br>
-https://open.spotify.com/embed/playlist/5H2c71FeAgofnkgr5MXgzP?utm_source=generator
+[Songlist](https://zsccodelnc.cn/joylist/)
